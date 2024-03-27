@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VrajThakar24
+- 👀 I’m interested in Software development 
+- 🌱 I’m currently learning C & HTML
+- 📫 How to reach me Insta- astrophile_024
